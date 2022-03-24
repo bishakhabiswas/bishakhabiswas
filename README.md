@@ -7,4 +7,4 @@
 - 📫 How to approach me: https://www.linkedin.com/in/bishakha-biswas-61b9731ab/ 
 - ⚡ For professional needs: Email me/tandra.bu@gmail.com
 - 😁 Fun fact: Too much work to do.I'm gonna die.
-- 💻 Explore my daily work 👇
+- 💻 Explore my work 👇
